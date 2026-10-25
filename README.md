@@ -1,4 +1,4 @@
-$$\color{#FFB13D}{" when /space I'm /space here /space you're /space invincible "}$$
+$$\color{#FFB13D}{꒰১ ໒꒱}}$$
 
 ![.](https://cdn.phototourl.com/member/2026-10-25-ee171e0f-0f9e-4d21-8f68-8b50f932df6f.png)
 
