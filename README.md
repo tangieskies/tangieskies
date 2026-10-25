@@ -7,4 +7,4 @@ $$\color{orange}{\text{──── ୨୧ ────}}$$
 <code>꒰১ ໒꒱</code>
 
 
-![](https://komarev.com/ghpvc/?username=tangieskies&color=orange&abbreviation=true&style=flat-square&label=fruits+in+the+basket)
+![](https://komarev.com/ghpvc/?username=tangieskies&color=orange&abbreviation=true&style=flat-square&label=cuties)
