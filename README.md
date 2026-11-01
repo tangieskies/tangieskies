@@ -4,7 +4,7 @@ $$\color{orange}{\text{──── ୨୧ ────}}$$
 
 ![.](https://cdn.phototourl.com/member/2026-10-25-ee171e0f-0f9e-4d21-8f68-8b50f932df6f.png)
 
-**$$\color{darkorange}{\text{I may respond late}}$$**
+**$$\color{darkorange}{\text{may respond late}}$$**
 **$$\color{darkorange}{\text{when it comes to gimmicks/}}$$**
 **$$\color{darkorange}{\text{ata messages (⁠´⁠-⁠﹏⁠-⁠`⁠；⁠)}}$$**
 
