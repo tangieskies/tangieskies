@@ -12,4 +12,4 @@ $$\color{orange}{\text{──── ୨୧ ────}}$$
 <code>꒰১ ໒꒱</code>
 
 
-![](https://komarev.com/ghpvc/?username=tangieskies&color=orange&abbreviation=true&style=flat-square&label=cuties)
+![](https://komarev.com/ghpvc/?username=tangieskies&color=orange&abbreviation=true&style=flat-square&label=crows)
